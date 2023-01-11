@@ -10,3 +10,9 @@ ZAKAJ KUPOVATI PRI NAM:
 - dostava paketov je brezplačna
 - paket ti dostavimo v hitrejšem času kot kdorkoli saj je zadovoljstvo strank na prvem mestu
 - če rabite pomoč se lahko obrnete na naše delavce, ki so vam pripravljeni pomagati kdarkoli
+
+
+FEEDBACK:
+
+- po vsakem nakupo lahko izdelk tudi ocenite in dodate komentar, ki pa olajša nakupe novim uporabnikom
+- lahko tudi ocenite ljudi na info točki, ki so vam svetovali pri nakupu
